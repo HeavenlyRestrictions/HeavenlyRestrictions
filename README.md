@@ -55,6 +55,12 @@ especially if you are under-age.
 
 Will update this freely . . . Beware of changes.
 
+══════════════════
+
+Links ! Some are WIP !
+
+[rentry](https://rentry.co/HeavenlyRestrictions)
+
 
  ‧˚₊꒷꒦︶︶︶︶︶꒷꒦︶︶︶︶︶꒦꒷‧₊˚⊹
 
